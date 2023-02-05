@@ -5,3 +5,5 @@ I possess excellent leadership skills, as well as the ability to work effectivel
 With my extensive knowledge in technology and innovation management, combined with my experience in machine learning and artificial intelligence application, I am well-equipped to drive business success and help organizations reach their full potential.
 
 I am looking forward to collaborating in the leveraging of data, optimizing processes, and automating manual task.
+
+I  can be reach at my discord account kem#7624
